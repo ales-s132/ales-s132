@@ -14,6 +14,7 @@ about me:          ☆*:.｡.꒰ঌ ໒꒱.｡.:*☆
 - i am part of the biggest team of robotics finalists from my country  ˚₊‧꒰ა 𓂋 ໒꒱ ‧₊˚
 - my biggest project so far has been the AHP (an online community of passion-driven people with the same principles as me)
 - i'm into cybersecurity   ˚₊‧꒰ა♡໒꒱ ‧₊˚
+- unicorns are real  𓆩 ೀ 𓆪
 
 contact: jvxxc8m@proton.me    (collaborations and any questions about my credentials)
 
