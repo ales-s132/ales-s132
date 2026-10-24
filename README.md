@@ -1,5 +1,7 @@
 ## 𝒽𝑒𝓎 𝒶𝓃𝑔𝑒𝓁𝓈      ִֶָ🪽་༘
-<img width="320" height="106" alt="image" src="https://github.com/user-attachments/assets/bdf0fd1d-e0fe-4621-bb20-1ec724e54d49" />
+<img width="400" height="225" alt="image" src="https://github.com/user-attachments/assets/974ab8c1-85a5-4abd-9786-572f1c76ec04" />
+
+
 
 
 
@@ -19,4 +21,5 @@ my latest project's Instagram page: @bsqueries
 
 i love you all  ⊹ ࣪ ˖𖹭᭝ ᨳଓ ՟
 
-<img width="278" height="157" alt="image" src="https://github.com/user-attachments/assets/2e315528-e64a-4113-be07-d48e66de410b" />
+<img width="368" height="341" alt="image" src="https://github.com/user-attachments/assets/38ce3172-cc43-4bf0-82e4-de28a2afa6d4" />
+
