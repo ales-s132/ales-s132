@@ -16,6 +16,7 @@ about me:          ☆*:.｡.꒰ঌ ໒꒱.｡.:*☆
 - my biggest project so far has been the AHP (an online community of passion-driven people with the same principles as me)
 - i'm into cybersecurity   ˚₊‧꒰ა♡໒꒱ ‧₊˚
 - unicorns are real  𓆩 ೀ 𓆪
+- i love ducks
 
 contact: jvxxc8m@proton.me    (collaborations and any questions about my credentials)
 
